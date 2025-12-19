@@ -1,1 +1,1 @@
-# All projects by Dogany
+# All projects
